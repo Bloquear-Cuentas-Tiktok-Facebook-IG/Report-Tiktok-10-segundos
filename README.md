@@ -1,4 +1,4 @@
-# Report-Tiktok-10-segundos
+#Bloquear Cuentas TIKTOK FACEBOOK INSTAGRAM
 reporte masivo de tiktok bloquear cuentas Tiktok , Facebook , Instagram
 block tiktok , facebook , instagram
 CONTACTO t.me/servidorderedes
